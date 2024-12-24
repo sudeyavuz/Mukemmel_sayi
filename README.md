@@ -1,0 +1,1 @@
+# mükemmel sayı
